@@ -4,3 +4,5 @@ En este github podrán encontrar las ayudantías del curso y las pautas, tambien
 Video Ayudantía 1: https://youtu.be/NkSWUAmw0fQ
 
 Video Ayudantía 2: https://youtu.be/FMl30UJH7rA
+
+Video Ayudantía 3: 
