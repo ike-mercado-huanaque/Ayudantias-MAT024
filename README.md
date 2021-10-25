@@ -7,5 +7,8 @@ Video Ayudantía 2: https://youtu.be/FMl30UJH7rA
 
 Video Ayudantía 3: https://youtu.be/yS8C5fu9plc
 
-Video Ayundatía 4: https://youtu.be/Orx9oM-_B1Y
+Video Ayudantía 4: https://youtu.be/Orx9oM-_B1Y
 
+Video Ayudantía 5: https://youtu.be/m7UXw7YHNWQ
+
+Video Ayudantía 6: 
