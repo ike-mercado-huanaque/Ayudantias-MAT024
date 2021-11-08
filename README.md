@@ -11,4 +11,4 @@ Video Ayudantía 4: https://youtu.be/Orx9oM-_B1Y
 
 Video Ayudantía 5: https://youtu.be/m7UXw7YHNWQ
 
-Video Ayudantía 6: 
+Video Ayudantía 7: https://youtu.be/-xx2NaAJfUQ
