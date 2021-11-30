@@ -13,8 +13,8 @@ Video Ayudantía 5: https://youtu.be/m7UXw7YHNWQ
 
 Video Ayudantía 7: https://youtu.be/-xx2NaAJfUQ
 
-Video Ayudantía 9 parte 1:
+Video Ayudantía 9 parte 1: https://youtu.be/WRyJA5raIAs
 
-Video Ayudantía 9 parte 2:
+Video Ayudantía 9 parte 2: https://youtu.be/1NPc-uUAY20
 
-Video Ayudantía 10: 
+Video Ayudantía 10: https://youtu.be/jEPEGHC4ulg
